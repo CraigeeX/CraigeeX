@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning on how to create a whatapp bot using baileys
 - 💞️ I’m looking to collaborate on how to hack everything on internet 
 - 📫 Reach me on Telegram {t.me/CraigeeX}
-- 😄 Pronouns: ...
+- 😄 Sensei:Mr Fr3nk @github.com/MrFr3nk
 - ⚡ Fun fact:Im Just an Icon Living 
 
 <!---
